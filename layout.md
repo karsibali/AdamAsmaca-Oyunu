@@ -6,5 +6,4 @@ vqe7kujck4.html
 pmipb6c9fn8.html
 mc64e24161o.html
 tjee5bjt1lo.html
-figures/dots
 5875r42uqgg.html
