@@ -5,7 +5,6 @@ hjdhei5d6m8.html
 vqe7kujck4.html
 pmipb6c9fn8.html
 mc64e24161o.html
-181a0.html
 figures/tufte-tech-doc
 tjee5bjt1lo.html
 figures/dots
