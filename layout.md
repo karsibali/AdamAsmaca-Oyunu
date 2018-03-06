@@ -6,7 +6,6 @@ vqe7kujck4.html
 pmipb6c9fn8.html
 mc64e24161o.html
 fgkj2p21n6o.html
-c2ef.tex
 e61f.md
 181a0.html
 figures/tufte-tech-doc
