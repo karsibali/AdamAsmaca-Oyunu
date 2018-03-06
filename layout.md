@@ -1,0 +1,13 @@
+abstract.html
+untitled.html
+12e64.md
+19bb.html
+5krktni00d.md
+fgkj2p21n6o.html
+c2ef.tex
+e61f.md
+181a0.html
+figures/tufte-tech-doc
+tjee5bjt1lo.html
+figures/dots
+5875r42uqgg.html
